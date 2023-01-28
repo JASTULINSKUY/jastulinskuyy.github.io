@@ -1,1 +1,1 @@
-# jastulinskuyy.github.io
+# jastulinskuy.github.io
